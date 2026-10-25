@@ -3,3 +3,9 @@
 The Immigration Consultant AI Assistant (CIC) is a virtual assistant that provides support in both Bengali and English.
 
 It offers guidance on various pathways for immigration to Canada—such as studying, working, and traveling—serving as a resource in the absence of AB Rahman, RCIC.
+
+https://short-url.cc/1APUF
+
+https://rahman-cic-irc.github.io/AB-Rahman-RCIC-Virtual-AI-Assistant-immigration-Canada-/
+
+অস্থায়ী ভিসা ও পারমিট (Temporary Visas & Permits)
